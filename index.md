@@ -1,7 +1,7 @@
 Ancora nessuna attività in corso... torna più tardi!
 
-*Qui potrai:
+### Qui potrai:
   1. iscriverti alle attività (pomeridiane o di cogestione) del Liceo
-  *2. ordinare le felpe/i gadget
+  2. ordinare le felpe/i gadget
   3. prenotarti per partecipare al collettivo studentesco
-*... e molto altro!+
+... e molto altro!
