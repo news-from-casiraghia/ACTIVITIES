@@ -6,4 +6,4 @@ Qui potrai:
 ... e molto altro!
 ```
 
-Ancora nessuna attività in corso... (ve ne saranno a breve).
+Ancora nessuna attività in corso... torna più tardi!
