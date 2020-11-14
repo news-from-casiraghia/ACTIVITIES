@@ -3,6 +3,6 @@ Vuoi partecipare al più grande torneo di gaming in Italia? Vuoi iscriverti a no
 
 ### Qui potrai:
   1. iscriverti alle attività (pomeridiane o di cogestione) del Liceo
-  2. ordinare le felpe/i gadget
+  2. ordinare i gadget (felpe, borracce,...)
   3. prenotarti per partecipare al collettivo studentesco
 ... e molto altro!
