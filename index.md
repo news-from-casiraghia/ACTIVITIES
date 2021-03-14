@@ -1,8 +1,8 @@
+## Conferenze orientamento per classi del Triennio
+Ciao Casiraghiani! Abbiamo organizzato alcune attività di Orientamento per le classi Quarte e Quinte del Triennio. Nel dettaglio, si tratta di due videochiamate, alle quali potete iscrivervi cliccando sul link di riferimento: [la prima]() si terrà con un professore Universitario del Politecnico di Milano; [la seconda]() sarà con alcuni ex-studenti del Casiraghi che si sono offerti di raccontare la loro esperienza in varie facoltà Universitarie. Per qualsiasi dubbio, sentiti liberissimi di contattarci tramite i soliti canali, 
+
 ## Ritorna il giornalino scolastico!
 Ragazzi anche quest'anno riparte il **giornalino scolastico**. Speriamo di avere molti nuovi scrittori tra le nostre file. Se siete interessati compilate [questo modulo](https://docs.google.com/forms/d/e/1FAIpQLSdwRXk4tIQAa_RRUAqPuHdvsPqncLjVCqsi7m3pQG2r9z9DiA/viewform?usp=sf_link)
-
-## Iscrizioni Torneo E-School League!
-Sono ufficialmente chiuse le iscrizioni: avevate tempo fino al 31 Dicembre per [iscrivervi qua](https://assembleiamo.it/iscriviti/). Se vuoi qualche informazione in più sull'evento, puoi benissimo farlo [guardando qua!](https://assembleiamo.it/e-school-league/); per qualsiasi problema o domanda, non esitare a contattarci tramite la sezione **Feedback** dell'app!
 
 ### Qui potrai:
   1. iscriverti alle attività (pomeridiane o di cogestione) del Liceo
